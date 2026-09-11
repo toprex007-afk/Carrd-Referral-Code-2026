@@ -1,4 +1,4 @@
-# Carrd Discount Code – 40% OFF with MAKER [2026 Exclusive]
+# Carrd Discount Code 2026 – MAKER 40% OFF [September 2026 Exclusive]
 
 Looking for the best way to save money on a premium Carrd website plan in 2026? You’re in the right place. This exclusive guide reveals the latest **Carrd Discount Code – 40% OFF** deal that helps creators, freelancers, marketers, and businesses upgrade their websites for less.
 
